@@ -1,6 +1,6 @@
 # Hi I'm Vi (or Anna)
 ---
-im a developer and am also looking to get into pentesting eventually.
+im a developer ig
 
 there is not a lot going on here lol
 
